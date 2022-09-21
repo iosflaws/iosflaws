@@ -1,4 +1,4 @@
-flawed-ware is my biggest project next to calamity.tap
+flawed-ware is my biggest project next to lethality.win
 
 I upload cheats and am working on alot of cheats to be released soon!
 
