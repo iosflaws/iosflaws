@@ -1,4 +1,4 @@
-flawed-ware is my biggest project next to lethality.hvh
+flawed.ware is a free fe roblox script that i work on
 
 I upload cheats and am working on alot of cheats to be released soon!
 
