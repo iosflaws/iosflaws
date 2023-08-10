@@ -8,4 +8,6 @@ Gay ( point and laugh )
 
 Femboy ( point and laugh )
 
+If you're a dahoodian looking for scripts to use, Check out either resonance or my Dahood_Public repository
 
+;3
