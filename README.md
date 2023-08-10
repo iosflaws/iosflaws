@@ -1,7 +1,11 @@
-flawed.ware is a free fe roblox script that i work on
+Lua Developer
 
-I upload cheats and am working on alot of cheats to be released soon!
+Fan of: Breaking Bad, Better Call Saul, BladeRunner's and The Amazing Spider-Man 1 & 2
 
-Youtube: https://www.youtube.com/channel/UCiBvNr1RO8Yz90dCnLhrORw
+Owner of: flawed.dev (discontinued) and resonance
 
-Discord: flaws#3114
+Gay ( point and laugh )
+
+Femboy ( point and laugh )
+
+
