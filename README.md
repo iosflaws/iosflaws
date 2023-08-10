@@ -10,4 +10,5 @@ Femboy ( point and laugh )
 
 If you're a dahoodian looking for scripts to use, Check out either resonance or my Dahood_Public repository
 
+Wanna contact me? mazt#7384 or mjzt
 ;3
